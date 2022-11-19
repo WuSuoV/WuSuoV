@@ -1,3 +1,3 @@
 ## 我的博客
 
-* 传送门：[www.qian.blue](https://www.qian.blue)
+* 传送门：[www.skyqian.com](https://www.skyqian.com)
