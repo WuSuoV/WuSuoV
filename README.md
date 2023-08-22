@@ -8,4 +8,4 @@
 
 ## 请我喝杯可乐
 
-* 支持一下：[pay.qian.blue](https://pay.qian.blue)
+* 支持一下：[i.skyqian.com/pay/](https://i.skyqian.com/pay/)
