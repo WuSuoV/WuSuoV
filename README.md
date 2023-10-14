@@ -1,6 +1,6 @@
 ## 我的博客
 
-* 传送门：[www.skyqian.com](https://www.skyqian.com)
+* 传送门：[www.SkyQian.com](https://www.skyqian.com)
 
 ## 请我喝杯可乐
 
