@@ -4,7 +4,7 @@
 
 ## 请我喝杯可乐
 
-* 支持一下：[i.skyqian.com/pay/](https://i.skyqian.com/pay/)
+* 支持一下：[点我捐赠](https://i.skyqian.com/pay)
 
 ## 统计
 
